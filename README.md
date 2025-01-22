@@ -1,1 +1,0 @@
-# Tutorial-kazitasa-2025
